@@ -1,4 +1,4 @@
-Ice hockey is the best sport to watch. If you don't understand then go away. Just kidding, you can stay and you will see that I am right.
+Ice hockey is the best sport to watch. There is plenty of arenas which are really wonderful. If you don't understand then go away. Just kidding, you can stay and you will see that I am right.
 
 ###########################################################################
 
