@@ -12,6 +12,8 @@ Offensive Teams in NHL:
 
 Responsible Teams in NHL:
 
+	Boston Bruins
+
 	Carolina Hurricanes
 
 	New York Rangers
